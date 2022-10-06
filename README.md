@@ -14,3 +14,5 @@ menuda(tremenda) mailf
 Si es que no me parece normal que te parezca normal la anormalidad que ha hecho ese anormal, subnormal.
 Eh un respeto sin insultos
 aiga paz y amor
+yo quiero lo que toma yo quiero lo que toma
+Diego Armando maradona

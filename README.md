@@ -11,3 +11,4 @@ leedeme esta
 J4pens
 menudo coche deportivo
 menuda(tremenda) mailf
+Si es que no me parece normal que te parezca normal la anormalidad que ha hecho ese anormal, subnormal.
